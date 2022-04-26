@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jelenalajsic
-- 👀 I’m interested in finding IT professionals
+- 👀 I’m interested in recruiting IT professionals
 - 📫 How to reach me jelena.lajsic@3ap.ch
 
 <!---
